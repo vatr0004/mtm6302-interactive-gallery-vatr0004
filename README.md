@@ -1,1 +1,2 @@
-# mtm6302-interactive-gallery-vatr0004
+# Full Name: Theodora Vatra 
+Student Number: 041-034-077
